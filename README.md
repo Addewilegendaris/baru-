@@ -1,2 +1,2 @@
-# baru-
-Baru 
+#hai
+Aku adalah manusia 
